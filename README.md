@@ -7,7 +7,7 @@
 
 - 👨‍💻 Computer Science Undergraduate Student at [PSG College of Technology](https://www.psgtech.edu/)
 
-- 📫 How to reach me **narenvaithiyaa@gmail.com**
+- 📫 Reach me at **narenvaithiyaa@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
